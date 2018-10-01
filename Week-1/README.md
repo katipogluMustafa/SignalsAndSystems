@@ -119,3 +119,21 @@
 ![Slide Note From Nizametting Aydın](img/59.png)
 
 ![Slide Note From Nizametting Aydın](img/60.png)
+
+![Slide Note From Nizametting Aydın](img/61.png)
+
+![Slide Note From Nizametting Aydın](img/62.png)
+
+![Slide Note From Nizametting Aydın](img/63.png)
+
+![Slide Note From Nizametting Aydın](img/64.png)
+
+![Slide Note From Nizametting Aydın](img/65.png)
+
+![Slide Note From Nizametting Aydın](img/66.png)
+
+![Slide Note From Nizametting Aydın](img/67.png)
+
+![Slide Note From Nizametting Aydın](img/68.png)
+
+![Slide Note From Nizametting Aydın](img/69.png)
